@@ -50,3 +50,4 @@ https://www.mobileread.com/forums/showthread.php?t=294134
 
 My email: hadesome1@gmail.com  
 My skype: https://join.skype.com/invite/JPNMlTtXodmB
+The skype group link is https://join.skype.com/HVe73jWrBAxg
